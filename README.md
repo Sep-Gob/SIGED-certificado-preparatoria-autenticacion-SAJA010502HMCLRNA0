@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-SAJA010502HMCLRNA0
+SAJA010502HMCLRNA0
